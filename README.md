@@ -7,7 +7,6 @@ After more than **10 years** working @Apple ![Apple_Computer_Logo_rainbow svg](h
 - 👯 I’m looking to collaborate on any websites projects.
 - 💬 Ask me about about guitars, I'm a guitar geek!
 - 📫 How to reach me: Instagram @feather_snake
-- 😄 Pronouns: He/His
 - ⚡ Fun fact: I love to travel alone. It helps meet more people!
 
 
