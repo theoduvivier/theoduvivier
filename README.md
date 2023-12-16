@@ -1,7 +1,7 @@
 ## Hi there 👋, you can call me **Thēo**
 
 - 🔭 I’m currently working @LeGratin.io as a fullstack developer.
-- 💬 Ask me about about guitars, I'm a guitar geek!
+- 💬 Ask me about guitars, I'm a guitar geek!
 - ⚡ Fun fact: I love to travel alone. It helps meet more people!
 
 
